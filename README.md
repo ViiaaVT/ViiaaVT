@@ -1,9 +1,9 @@
-- 👋 Hi, I’m Via 🏳️‍⚧️
-- 👀 I’m interested in programming & engineering!
-- 🌱 I’m currently learning mechanical engineering.
-- 💞️ I’m looking to collaborate on nothing!
-- 📫 How to reach me: My socials via linktree: https://linktr.ee/IIViaaII
-- 😄 Pronouns: She/Her, They/Them
+- 👋 Haiii, I’m Via 🏳️‍⚧️
+- 👀 I’m interested in programming & content creation!
+- 🌱 I’m currently learning everything I can!
+- 💞️ I’m not looking to collaborate for now!
+- 📫 How to reach me: Through my webstite: https://viiaavt.com <33
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: There's a BUNCH of stuff I love to do and see!
 
 <!---
